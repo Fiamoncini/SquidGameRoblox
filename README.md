@@ -1,5 +1,7 @@
 #  Squid Game Roblox
 
+ ![image](https://github.com/user-attachments/assets/9b7d24da-d2ea-4089-aaf0-a9ba3ea6b8bc)
+
 🛠 Mapa do Roblox inspirado na série sul-coreana Squid Game. 🛠
 
 🎖 Mapa recomendado pelo Roblox. 🎖
