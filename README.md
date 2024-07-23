@@ -8,7 +8,7 @@
 
 👨‍💻Feito em **Lua**, linguagem oficial para mapas do ROBLOX.👨‍💻
 
-🔗**LINK:** (https://www.roblox.com/games/7913500462/Squid-Games-Batatinha-Frita-Green-Light)🔗
+🔗**LINK:** (https://www.roblox.com/games/7913500462/Squid-Games-Batatinha-Frita-Green-Light) 🔗
 
 Para mais esclarecimentos, me contate!
 📩E-Mail: pedroafiamoncini1@gmail.com📩
