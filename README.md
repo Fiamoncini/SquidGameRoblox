@@ -1,6 +1,6 @@
 #  Squid Game Roblox
 
-🛠Mapa do Roblox inspirado na série sul-coreana Squid Game.🛠
+🛠 Mapa do Roblox inspirado na série sul-coreana Squid Game. 🛠
 
 🎖 Mapa recomendado pelo Roblox. 🎖
 
