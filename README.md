@@ -14,5 +14,4 @@ Para mais esclarecimentos, me contate!
 
 📩 E-Mail: pedroafiamoncini1@gmail.com 📩
 
-
  ![image](https://github.com/user-attachments/assets/9b7d24da-d2ea-4089-aaf0-a9ba3ea6b8bc)
