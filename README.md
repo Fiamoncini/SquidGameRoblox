@@ -2,7 +2,7 @@
 
 🛠Mapa do Roblox inspirado na série sul-coreana Squid Game.🛠
 
-🎖Condecorado pelo Roblox como bom desenvolvedor.🎖
+🎖 Mapa recomendado pelo Roblox. 🎖
 
 🎉Mais de **418 Mil** jogadores. 🎉
 
